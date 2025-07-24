@@ -1,6 +1,6 @@
 # 💫 Acerca de Mi:
 
-🔭 Actualmente estoy trabajando en
+🔭 Actualmente estoy trabajando en Mecanica Automotriz
 👯 Busco trabajar en desarrollo 
 
 ## 🌐 Social:
